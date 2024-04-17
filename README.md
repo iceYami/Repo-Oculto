@@ -1,2 +1,2 @@
 # Repo-Oculto
-Tengo repositorios ocultos, si quieres ver estos proyectos, pídemelo y te los enseño.
+Tengo repositorios que no son públicos. Si quieres ver estos proyectos, pídemelo.
